@@ -1,1 +1,1 @@
-"Close this World, Open the Next."
+"Close the world, .txEn eht nepo"
